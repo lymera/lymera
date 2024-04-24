@@ -6,4 +6,4 @@
 - 💬 Ask me about NOTHING
 - 📫 How to reach me: DM
 - 😄 Pronouns: MAN
-- ⚡ Fun fact: A*A*A*
+- ⚡ Fun fact: A* A* A*
